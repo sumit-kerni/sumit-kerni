@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @sumit-kerni
-- 👀 i like to do - work in easy way
+- 👀 i like to do complicated work in easy way
 - 🌱 I’m currently learning - web development
 - 💞️ I’m looking to collaborate on ... not yet decided
-- 📫 How to reach me ...sumitkerni09@gmail.com 👇👇
+- 📫 How to reach me ... sumitkerni09@gmail.com or on instagram(mostly active there)👇👇
 - 📲 my socialmedia handle-- sumit_kerni_
 - ⚡ Fun fact: ... people says. AI will replace human's soon in coding but the point is who programed AI.....?? 
 
